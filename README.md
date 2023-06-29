@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Java**
 
-- 📫 How to reach me **gasthi@minelatino.com | Gasthi#3108**
+- 📫 How to reach me **gasthi@minelatino.com | gasthi | DC**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
